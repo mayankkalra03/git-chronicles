@@ -1,1 +1,1 @@
-Player HP: 100
+"Player HP: 0" 
