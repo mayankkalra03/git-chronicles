@@ -1,1 +1,1 @@
-"Chapter 1: The Villain Descends"
+Chapter 1: The Villain Descends
